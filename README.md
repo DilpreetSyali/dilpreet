@@ -5,3 +5,4 @@
 
 ## 📫 Connect With Me
 dilpreetsyali.work@gmail.com 
+https://www.linkedin.com/in/dilpreetsyali/
