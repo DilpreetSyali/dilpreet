@@ -4,4 +4,4 @@
 📍 India | 💻 Developer in the making
 
 ## 📫 Connect With Me
-dilpreetsyali.work@gmail.com
+dilpreetsyali.work@gmail.com 
